@@ -1,2 +1,3 @@
 <p align="center">
-this used to be decorated but then it broke so no one gets it now GRR. just refer to my strawpage and read byi.
+github 4 PT and things :3 
+CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. i certainly don't care whether you ship them or not, i just would prefer not to see/consume any content about it.
