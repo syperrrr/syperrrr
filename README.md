@@ -1,6 +1,8 @@
 <p align="center">
 <img width="540" height="304" alt="overall-general-intelligence-knowledge-learning-ability-etc-v0-78e7yx291tte1" src="https://github.com/user-attachments/assets/f43d5840-66b3-4ab7-a38f-e41094905881" />
 <p align="center">
+  <small><i>. . . your love affects the world . . .</i></small>
+<p align="center">
 hellooo! welcome 2 my github. this github is 4 ponytown purposes / byi
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
@@ -10,3 +12,5 @@ CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfo
 i'm 17 so no freaky jokes targeting me please !!
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
+<p align="center">
+<small><i>. . . for more relative information, check strawpage! also sign ata, would appreciate that <3 . . .</i></small>
