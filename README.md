@@ -5,16 +5,25 @@
 <p align="center">
 hellooo! welcome 2 my github. this github is 4 ponytown purposes / byi
 <p align="center">
+   <br>
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
+   <br>
 <p align="center">
 CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. i certainly don't care whether you ship them or not, i just would prefer not to see/consume any content about it.
 <p align="center">
 i'm 17 so no freaky jokes targeting me please !!
 <p align="center">
+   <br>
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
 <p align="center">
 <small><i>. . . for more relative information, check strawpage! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
+     <br>
+      <br>
+      <br>
+      <br>
+      <br>
+      <br>
   <img width="385" height="29" alt="751c0dea" src="https://github.com/user-attachments/assets/9dc45511-93ec-47be-8ffe-779442c6d893" />
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
