@@ -5,7 +5,6 @@
 <p align="center">
 hellooo! welcome 2 my github. this github is 4 ponytown purposes / byi
 <p align="center">
-   <br>
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
    <br>
 <p align="center">
