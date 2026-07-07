@@ -12,7 +12,10 @@ CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfo
 <p align="center">
 i'm 17 so no freaky jokes targeting me please !!
 <p align="center">
-   <br>
+  <p align="center">
+    PT: im usually off tab if not actively interacting with friends, so send me a whisp if you want to interact with me. id hate to ignore anyone!!
+      <br>
+     <br>
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
 <p align="center">
 <small><i>. . . for more relative information, check strawpage! also sign ata, would appreciate that <3 . . .</i></small>
