@@ -3,7 +3,7 @@
 <p align="center">
   <small><i>. . . your love affects the world . . .</i></small>
 <p align="center">
-hellooo! welcome 2 my github. this github is 4 ponytown purposes / byi
+hellooo! welcome 2 my github. this github is 4 ponytown purposes, byi, and also a directory to my other links!
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
    <br>
