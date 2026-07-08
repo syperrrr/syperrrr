@@ -19,7 +19,7 @@
 this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
 <p align="center">
-i have ONLY and ONLY these socials: instagram, tumblr, pinterest and deviantart.
+i have ONLY and ONLY these socials: instagram, tumblr, pinterest, discord, and deviantart.
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
 <br>
