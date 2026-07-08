@@ -5,9 +5,11 @@
   <p align="center">
   <small><i>. . . your love affects the world . . .</i></small>
 <p align="center">
-<strong>hellooo! welcome 2 my github.</strong>
+<strong>hellooo! welcome 2 my github. i'm sunny!</strong>
   <p align="center">
     this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
+      <p align="center">
+        you might know me under some of my tags @sunzshatter or @5yperrr.
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
    <br>
