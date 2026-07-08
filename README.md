@@ -51,6 +51,8 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
     <p align="center">
       𑣿 chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago, deltarune, undertale, omori
         <br> 𑣿 i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
+        <p align="center">
+          i love history (but not very great at remembering it), i enjoy lots and lots of writing, contemplation about character dynamics and relationships, frequent drawing, and dressing up even though i'm not the greatest at fashion.
   <br>
   <br>
   <p align="center">
