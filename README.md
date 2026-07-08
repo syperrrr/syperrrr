@@ -49,7 +49,7 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
 <p align="center">
    <strong>FANDOMS & INTERESTS</strong>
     <p align="center">
-      𑣿 chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago 
+      𑣿 chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago, deltarune, undertale, omori
         <br> 𑣿 i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
   <br>
   <br>
