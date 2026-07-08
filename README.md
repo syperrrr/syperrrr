@@ -46,3 +46,5 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
 <p align="center">
 <small><i>. . . for more relative information, check strawpage! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
+<a href="(https://5yper.straw.page/)">
+ <img lt="tumblr_0c67527f6e9012920dea83606df48dbd_81fe3dc7_400" src="https://github.com/user-attachments/assets/3ac6a0b9-9895-4b63-af3d-10b5eb8fa7ab" /> </a>
