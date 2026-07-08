@@ -47,6 +47,13 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
   <p align="center">
 ────────────────────────────────────────
 <p align="center">
+   <strong>FANDOMS & INTERESTS</strong>
+    <p align="center">
+      𑣿 chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago 
+        <br> 𑣿 i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
+  <br>
+  <br>
+  <p align="center">
 <small><i>. . . for more relative information, check strawpage! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
 <a href="https://5yper.straw.page/">
