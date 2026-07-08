@@ -3,11 +3,13 @@
 <p align="center">
   <small><i>. . . your love affects the world . . .</i></small>
 <p align="center">
-hellooo! welcome 2 my github. this github is 4 ponytown purposes, byi, and also a directory to my other links!
+<strong>hellooo! welcome 2 my github.</strong>
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
    <br>
 <p align="center">
+<strong>BYI</strong>
+  <p align="center">
 CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. i certainly don't care whether you ship them or not, i just would prefer not to see/consume any content about it.
 <p align="center">
 i'm 17 so no freaky jokes targeting me please !!
