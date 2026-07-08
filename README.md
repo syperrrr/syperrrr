@@ -12,7 +12,7 @@
 <p align="center">
 ────────────────────────────────────────
 <p align="center">
-<strong>hellooo! welcome 2 my github. i'm sunny!</strong>
+<strong>hellooo! welcome 2 my github. i'm sunny! ᶻ 𝗓 𐰁 </strong>
 <p align="center">
 this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
@@ -22,7 +22,7 @@ this was made as an alternative to my strawpage, which you can find linked in my
 <p align="center">
 <strong>BYI</strong>
   <p align="center">
-CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. 
+જ⁀➴ CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. 
 </br> i certainly don't care whether you ship them or not, i just would prefer not to see/consume any content about it. </br> 
 <p align="center">
 i'm 17 so no freaky jokes targeting me please !!
@@ -38,10 +38,10 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
 <p align="center">
   <strong>DNI</strong>
   <p align="center">
-  • anyone under 15~ 
+  ♱ anyone under 15~ 
 </br><i> if we've been friends for a while thats ok, but generally i dont want to make friends with children lol </i>
   <p align="center">
-• proshippers/darkshippers, whatever you call it
+♱ proshippers/darkshippers, whatever you call it
   <p align="center">
 ────────────────────────────────────────
 <p align="center">
