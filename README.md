@@ -32,7 +32,8 @@ i have ONLY and ONLY these socials: instagram, tumblr, pinterest, discord, and d
 i'm 17 so no freaky jokes targeting me please !!
 <p align="center">
   <p align="center">
- PT: im usually off tab if not actively interacting with friends, 
+ PT: w2i; c+h, int freely 👍. idm being around new people.
+<br> im usually off tab if not actively interacting with friends, 
 <br> so send me a whisp if you want to interact with me. id hate to ignore anyone!!
 <p align="center">
 AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if that makes you uncomfortable 
