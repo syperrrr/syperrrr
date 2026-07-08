@@ -1,7 +1,6 @@
 <img alt="tumblr_dffc48e240eea10d23a1d5e3b3fa23f2_cf931dde_2048" src="https://github.com/user-attachments/assets/9cb218f7-b721-429f-acad-b289b24129e9" />
-
-</br>
-</br>
+<p align="center">
+<img width="600" height="200" alt="Untitled2494_20260708034849" src="https://github.com/user-attachments/assets/234d3209-1f5f-41bd-a14e-828f555331a4" />
 </br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
