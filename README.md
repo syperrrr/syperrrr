@@ -1,9 +1,13 @@
 <p align="center">
 <img width="540" height="304" alt="overall-general-intelligence-knowledge-learning-ability-etc-v0-78e7yx291tte1" src="https://github.com/user-attachments/assets/f43d5840-66b3-4ab7-a38f-e41094905881" />
 <p align="center">
+  ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ
+  <p align="center">
   <small><i>. . . your love affects the world . . .</i></small>
 <p align="center">
 <strong>hellooo! welcome 2 my github.</strong>
+  <p align="center">
+    this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
 <p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
    <br>
