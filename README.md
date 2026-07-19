@@ -57,7 +57,7 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
         <p align="center">
           i love history (but not very great at remembering it), i enjoy lots and lots of writing, contemplation about character dynamics and relationships, frequent drawing, and dressing up even though i'm not the greatest at fashion. i am also a chronic daydreamer.
 <p align="center">
-♡ ` kins: angel (purrfect apawcalypse), calix
+♡ ` kins: angel (purrfect apawcalypse), calix ((very obvious)), darumi (hundred line), sayori (ddlc)
   <br>
   <br>
   <p align="center">
