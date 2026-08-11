@@ -68,3 +68,6 @@ AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if
  <p align="center">
     <p align="center">
 .𖥔 ݁ ˖˚₊‧꒰ა ✧ ໒꒱ ‧₊˚.˖᯽ ݁˖
+  <div align="center">
+<img src=https://komarev.com/ghpvc/?username=syperrrr&color=BBC3EE>
+</div>
