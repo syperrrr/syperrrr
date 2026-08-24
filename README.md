@@ -36,9 +36,6 @@ i'm 17 so no freaky jokes targeting me please !!
 <br> im usually off tab if not actively interacting with friends, 
 <br> so send me a whisp if you want to interact with me. id hate to ignore anyone!!
 <p align="center">
-AS FOR MYSELF: i like to tease and (jokingly) insult with my friends alot, so if that makes you uncomfortable 
-  <br> or you'd like for me to stop a certain joke, i'm more than willing to listen.
-<p align="center">
 <img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
 <p align="center">
   <strong>DNI</strong>
