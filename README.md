@@ -1,7 +1,7 @@
 <p align="center">
 <img alt="Untitled2494_20260708034849" src="https://64.media.tumblr.com/5d5ccfd978b5c13fe925ef774bbd6438/0d6941f898e01e1f-ef/s1280x1920/987989fb5292c9b0c7a4769c0a75a329bcdca2ee.jpg" />
 <p align="center">
-  <small><i> sunny, i cry when i see where it's taken you. what else can i do? </i></small>
+  <small><i> sunny, i cry when i see where it's taken you. i'm here, i won't move. </i></small>
   <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
