@@ -63,7 +63,7 @@ this was made as an alternative to my strawpage, which you can find linked in my
   <p align="center">
 <img alt="download (4)" src="https://github.com/user-attachments/assets/2d9f2ad6-81bc-426a-b64a-7a0f9b5edc1a" />
      <p align="center">
-<small><i>. . . for more relative information, check strawpage and scroll all the way down! also sign ata, would appreciate that <3 . . .</i></small>
+<small><i>. . . for more information, click the sunflower! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
       <br>
       <br>
