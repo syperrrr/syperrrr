@@ -1,11 +1,8 @@
-<img alt="tumblr_dffc48e240eea10d23a1d5e3b3fa23f2_cf931dde_2048" src="https://github.com/user-attachments/assets/9cb218f7-b721-429f-acad-b289b24129e9" />
 <p align="center">
-<img width="600" height="200" alt="Untitled2494_20260708034849" src="https://github.com/user-attachments/assets/234d3209-1f5f-41bd-a14e-828f555331a4" />
+<img alt="Untitled2494_20260708034849" src="https://64.media.tumblr.com/5d5ccfd978b5c13fe925ef774bbd6438/0d6941f898e01e1f-ef/s1280x1920/987989fb5292c9b0c7a4769c0a75a329bcdca2ee.jpg" />
 <p align="center">
-  <small><i>. . . and if you asked me today, the little boy inside me would still say: i didn't know. . . .</i></small>
+  <small><i> sunny, i cry when i see where it's taken you. what else can i do? </i></small>
   <p align="center">
-<img alt="tumblr_2a3da1602f918c2d579e590ca9188264_d07a8439_2048" src="https://github.com/user-attachments/assets/b35a2363-4b9a-4250-adfe-d6cb5be82216" />
-</br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oem40gdcqjv5vld0zpv62s7e0&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
@@ -19,7 +16,7 @@
 this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
+<img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
 <br>
 <p align="center">
 <strong>BYI</strong>
@@ -31,14 +28,15 @@ this was made as an alternative to my strawpage, which you can find linked in my
 <br> im usually off tab if not actively interacting with friends, 
 <br> so send me a whisp if you want to interact with me. id hate to ignore anyone!!
 <p align="center">
-<img src="https://github.com/user-attachments/assets/34003d73-ebce-4ebf-93b3-8d91058056ef" />
+<img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
+<br>
 <p align="center">
   <strong>DNI</strong>
   <p align="center">
-  ♱ anyone under 15~ 
+  ❀ anyone under 15~ 
 </br><i> if we've been friends for a while thats ok, but generally i dont want to make friends with children lol </i>
   <p align="center">
-♱ proshippers/darkshippers, whatever you call it
+❀ proshippers/darkshippers, whatever you call it
   <p align="center">
 ────────────────────────────────────────
 <p align="center">
@@ -55,11 +53,13 @@ this was made as an alternative to my strawpage, which you can find linked in my
   <p align="center">
 <small><i>. . . for more relative information, check strawpage and scroll all the way down! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
+      <br>
+      <br>
 <a href="https://sypers-directory.straw.page/">
- <img lt="tumblr_0c67527f6e9012920dea83606df48dbd_81fe3dc7_400" src="https://github.com/user-attachments/assets/3ac6a0b9-9895-4b63-af3d-10b5eb8fa7ab" /> </a>
+<img alt="download (3)" src="https://github.com/user-attachments/assets/729c195a-983f-4337-80ca-3da54b79031e" />
  <p align="center">
     <p align="center">
-.𖥔 ݁ ˖˚₊‧꒰ა ✧ ໒꒱ ‧₊˚.˖᯽ ݁˖
+༺｡° .ᘛ𓆩♡𓆪ᘚ. °｡༻
   <div align="center">
-<img src=https://komarev.com/ghpvc/?username=syperrrr&color=BBC3EE>
+<img src=https://komarev.com/ghpvc/?username=syperrrr&color=ffbf0f>
 </div>
