@@ -61,8 +61,8 @@ this was made as an alternative to my strawpage, which you can find linked in my
   <br>
   <br>
   <p align="center">
-     <img width="736" height="61" alt="tumblr_52615ec0070334a209a913bdf162ea19_d72b025e_1280" src="https://github.com/user-attachments/assets/f92acf97-33a5-4774-b089-0034731e0b28" />
-  <p align="center">
+<img width="512" height="35" alt="tumblr_d9990be20bf7c2a943e2daa2f36d3fbf_81808935_2048" src="https://github.com/user-attachments/assets/82d687a0-c70b-4ffb-b4cb-1a8c22192d4a" />
+     <p align="center">
 <small><i>. . . for more relative information, check strawpage and scroll all the way down! also sign ata, would appreciate that <3 . . .</i></small>
    <p align="center">
       <br>
