@@ -4,7 +4,6 @@
 <img alt="Untitled2494_20260708034849" src="https://64.media.tumblr.com/5d5ccfd978b5c13fe925ef774bbd6438/0d6941f898e01e1f-ef/s1280x1920/987989fb5292c9b0c7a4769c0a75a329bcdca2ee.jpg" />
 <p align="center">
   <small><i> sunny, i cry when i see where it's taken you. i'm here, i won't move. </i></small>
-  <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oem40gdcqjv5vld0zpv62s7e0&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
@@ -46,8 +45,8 @@ this was made as an alternative to my strawpage, which you can find linked in my
 <p align="center">
    <strong>FANDOMS & INTERESTS</strong>
     <p align="center">
-      𑣿 chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago, deltarune, undertale, omori
-        <br> 𑣿 i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
+      ❁ chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago, deltarune, undertale, omori
+        <br> ❁ i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
         <p align="center">
           i love history (but not very great at remembering it), i enjoy lots and lots of writing, 
 <br> character contemplation about dynamics and relationships, frequent drawing, and dressing up 
