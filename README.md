@@ -73,5 +73,8 @@ this was made as an alternative to my strawpage, which you can find linked in my
 <img src=https://komarev.com/ghpvc/?username=syperrrr&color=ffbf0f>
 </div>
  <a href="https://github.com/kittinan/spotify-github-profile">
+    <p align="center">
+      <br>
+      <br>
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oem40gdcqjv5vld0zpv62s7e0&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
   </a>
