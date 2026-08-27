@@ -47,12 +47,7 @@ this was made as an alternative to my strawpage, which you can find linked in my
       ❁ chonny jash, purrfect apawcalype, homestuck, stardew valley, minecraft story mode, ninjago, deltarune, undertale, omori
         <br> ❁ i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
         <p align="center">
-          i love history (but not very great at remembering it), i enjoy lots and lots of writing, 
-<br> character contemplation about dynamics and relationships, frequent drawing, and dressing up 
-<br> even though i'm not the greatest at fashion. 
-<br> i am also a chronic daydreamer. i adore graphic design, and i'm trying to get into coding. 
-<br> psychology is my strong suit but not the mental disorders part, more-so the vocab part. 
-<br> i aspire to be a therapist/social worker, so learning more facts about psychology fulfills me greatly.
+          i love history (but not very great at remembering it), i enjoy lots and lots of writing, character contemplation about dynamics and relationships, frequent drawing, and dressing up even though i'm not the greatest at fashion. i am also a chronic daydreamer. i adore graphic design, and i'm trying to get into coding. psychology is my strong suit but not the mental disorders part, more-so the vocab part. i aspire to be a therapist/social worker, so learning more facts about psychology fulfills me greatly.
 <p align="center">
 ♡ ` kins: angel (purrfect apawcalypse), calix (catharsis), darumi (hundred line), sayori (ddlc), lus (simulacrum)
   <br>
