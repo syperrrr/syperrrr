@@ -11,7 +11,7 @@
 <p align="center">
 ────────────────────────────────────────
 <p align="center">
-<strong>hellooo! welcome 2 my github. i'm sunny! ᶻ 𝗓 𐰁 </strong>
+<strong>hellooo! welcome 2 my github. i'm sunny! </strong>
 <p align="center">
 this was made as an alternative to my strawpage, which you can find linked in my bio, and also a directory to my other links!
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
@@ -26,7 +26,9 @@ this was made as an alternative to my strawpage, which you can find linked in my
   <p align="center">
  PT: w2i; c+h, int freely 👍. idm being around new people.
 <br> im usually off tab if not actively interacting with friends, 
-<br> so send me a whisp if you want to interact with me. id hate to ignore anyone!!
+<br> so send me a whisp if you want to interact with me. id hate to ignore anyone!! (ㅅ´ ˘ `)
+    <br>
+    <br>
 <p align="center">
 <img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
 <br>
