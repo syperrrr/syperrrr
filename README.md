@@ -67,7 +67,7 @@ this was made as an alternative to my strawpage, which you can find linked in my
    <p align="center">
       <br>
       <br>
-<a href="https://sypers-directory.straw.page/">
+<a href="https://5yperrr.straw.page/">
 <img alt="download (3)" src="https://github.com/user-attachments/assets/729c195a-983f-4337-80ca-3da54b79031e" />
  <p align="center">
     <p align="center">
