@@ -26,10 +26,7 @@ i have ONLY and ONLY these socials: instagram, tumblr, pinterest, discord, and d
 <p align="center">
 <strong>BYI</strong>
   <p align="center">
-જ⁀➴ CJ FANDOM: please no talk about jashships around me, alot of it makes me uncomfortable. 
-</br> i certainly don't care whether you ship them or not, i just would prefer not to see/consume any content about it. </br> 
-<p align="center">
-i'm 17 so no freaky jokes targeting me please !!
+જ⁀➴ i'm 17 so no freaky jokes targeting me please !!
 <p align="center">
   <p align="center">
  PT: w2i; c+h, int freely 👍. idm being around new people.
