@@ -50,7 +50,8 @@ this was made as an alternative to my strawpage, which you can find linked in my
         <br> 𑣿 i am also a lover of my own ocs, works, stories, and such (SIMULACRUM)
         <p align="center">
           i love history (but not very great at remembering it), i enjoy lots and lots of writing, 
-<br> contemplation about character dynamics and relationships, frequent drawing, and dressing up even though i'm not the greatest at fashion. 
+<br> character contemplation about dynamics and relationships, frequent drawing, and dressing up 
+<br> even though i'm not the greatest at fashion. 
 <br> i am also a chronic daydreamer. i adore graphic design, and i'm trying to get into coding. 
 <br> psychology is my strong suit but not the mental disorders part, more-so the vocab part. 
 <br> i aspire to be a therapist/social worker, so learning more facts about psychology fulfills me greatly.
