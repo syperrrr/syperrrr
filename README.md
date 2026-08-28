@@ -13,7 +13,7 @@
 <p align="center">
 <strong>hellooo! welcome 2 my github. i'm sunny! </strong>
 <p align="center">
-this was made as an alternative to my strawpage, which you can find linked in my below.
+this was made as an alternative to my strawpage, which you can find linked in my bio or down below.
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
 <p align="center">
 <img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
