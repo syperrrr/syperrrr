@@ -1,11 +1,9 @@
 <p align="center">
 <img width="750" height="250" alt="Untitled2587_20260827152440" src="https://github.com/user-attachments/assets/3f69235a-aad7-4263-9556-28e34e34f496" />
 <p align="center">
-<img width="736" height="61" alt="tumblr_6a4a3cd4044f61dfbb051dde98ba5dfb_9f4d4ee5_1280" src="https://github.com/user-attachments/assets/4a8d84be-6721-418a-80d3-800808390bb8" />
+<img width="750" height="50" alt="tumblr_6a4a3cd4044f61dfbb051dde98ba5dfb_9f4d4ee5_1280" src="https://64.media.tumblr.com/e4321d641a7f84f41b1e4c311d2bb20e/1770ee22cb78486a-0b/s2048x3072/0495d2ba6205372eab3924c7be6ced87a689b221.pnj" />
    <p align="center">
-<img alt="Untitled2494_20260708034849" src="https://64.media.tumblr.com/5d5ccfd978b5c13fe925ef774bbd6438/0d6941f898e01e1f-ef/s1280x1920/987989fb5292c9b0c7a4769c0a75a329bcdca2ee.jpg" />
-<p align="center">
-  <small><i> sunny, i cry when i see where it's taken you. i'm here, i won't move. </i></small>
+<i> if pain halved is shared, then my friend, what is yours is mine. </i>
 <p align="center">
 </p>
 <p align="center">
