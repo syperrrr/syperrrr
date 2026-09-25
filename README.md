@@ -16,7 +16,7 @@
 this was made as an alternative to my strawpage, which you can find linked in my bio or down below.
 </br> you might know me under some of my tags @sunzshatter or @5yperrr.</br>
 <p align="center">
-<img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
+<p align="center"><img src="https://64.media.tumblr.com/37e466a1522e7e16bf6cd7008f563af4/50ecc8a6cb31e62d-c7/s75x75_c1/f9059f3931700582dcf053ce082e8c778db3cb22.gifv" width="16" height="16" align="center" class="fr-fic fr-dii"><span style="font-size: 14;"><span style="font-family: helvetica;"><br></span></span>
 <br>
 <p align="center">
 <strong>BYI</strong>
@@ -30,7 +30,7 @@ this was made as an alternative to my strawpage, which you can find linked in my
     <br>
     <br>
 <p align="center">
-<img width="512" height="35" alt="tumblr_e4321d641a7f84f41b1e4c311d2bb20e_0495d2ba_2048" src="https://github.com/user-attachments/assets/2375cd42-4db5-45ff-8082-e110c4ce8df5" />
+<p align="center"><span style="font-size: 14;"><span style="font-family: helvetica;"><strong><img src="https://64.media.tumblr.com/6e49d6d15ac8e41cf6489842c093a5d9/0bc38e3561d310ea-c9/s1280x1920/6fdf982841fb12b88d22012db425a31c24883a35.gifv" class="fr-fic fr-dib" width="20" height="20"></strong></span></span>
 <br>
 <p align="center">
   <strong>DNI</strong>
